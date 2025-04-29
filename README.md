@@ -1,1 +1,1 @@
-Dowolny teksy do ćwiczenia
+Dowolny teksy do ćwiczenia AZS 
