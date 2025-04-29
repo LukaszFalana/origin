@@ -1,1 +1,1 @@
-Dowolny teksy do ćwiczenia 1git 
+Dowolny teksy do ćwiczenia
